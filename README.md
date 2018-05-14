@@ -3,7 +3,10 @@
 Tax is really theft
 
 ## Micha is also the best
-Russia sucks a lot
+Russia is the best
 
 ## Laurent is retarded
 Let life live
+
+Modif 1
+lalala()
