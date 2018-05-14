@@ -3,4 +3,4 @@
 Tax is really theft
 
 ## Micha is also the best
-Russia sucks
+Russia sucks a lot
